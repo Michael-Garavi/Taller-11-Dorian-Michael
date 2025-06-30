@@ -3,4 +3,4 @@
 ## Capturas
 
 
-![Uploading Captura de pantalla 2025-06-29 215550.png…]()
+![captura](Uploading Captura de pantalla 2025-06-29 215550.png)
